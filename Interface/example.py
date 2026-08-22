@@ -1,1 +1,0 @@
-#neru, tu é foda 
